@@ -1,3 +1,3 @@
 ### Welcome 😄
 
-<img src="https://media1.tenor.com/images/bc7f6147063085d89b403cb96de6f883/tenor.gif" width="840" height="460" />
+<img src="https://media1.tenor.com/images/26223391687fab5af0542df1c9e367f5/tenor.gif?itemid=4902426" width="840" height="460" />
